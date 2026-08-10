@@ -1,14 +1,25 @@
-⠀⠀⠀⠀⠀⠀⠀&emsp;⠀![image_alt](https://i.postimg.cc/kgjJSZX7/feathered-image.png)
 
-&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp;⠀⠀&emsp;⠀⠀&emsp;⠀⠀&emsp;⠀&emsp;⠀&emsp; 友 &emsp; 𝗖𝗵𝗼𝗾𝘂𝗲𝗻  &emsp;  𓏵  &emsp;  luv 𝘭𝘪𝘦𝘴 &emsp; ♡ㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀ㅤㅤ ㅤ 
-      
-ㅤ   ⠀⠀⠀⠀⠀⠀⠀ ㅤ៸៸ㅤㅤ ⡞⠳⣄⣀⣠⠞⢷ &emsp; 𝟱𝘵e̲e̲n̲ㅤ .ㅤ ◞ 𓏲 ๋࣭ ࣪ ˖
-⠀ 
+<div align="center">
+
+![profileviews](https://hitscounter.dev/api/hit?url=lovecounter&label=lovers&icon=person-hearts&color=%23f2a49a&message=&style=flat&tz=UTC
+)
+
+![](https://i.postimg.cc/02CJKqWY/feathered-image-(1).png) 
+
+<h6 align="center">
+
+$$\color{#f2a49a} going $$ $$\color{#5E6283} under, $$ $$\color{#f2a49a} rats $$
+$$\color{#5E6283} in $$ $$\color{#f2a49a} the $$ $$\color{#5E6283} cellar $$
 
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"> ![image_alt](https://i.postimg.cc/FRpJkpqG/675-Sem-Titulo-20260809210358.png) <p align="center">
- ㅤ &emsp; &emsp; &emsp;  &emsp;    ⠀⠀ ⌣  ୨୧  &emsp;  ׅㅤ&emsp;  whisper to 𝙞𝙣𝙩 ... &emsp; ˒˓
- 
-&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp; &emsp;⠀&emsp; &emsp; ★ &emsp; ︶︶ &emsp; [Rentry](https://rentry.co/emptyBoxc) &emsp; [Carrd](https://4reen.carrd.co)
- 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀![image_alt](https://i.postimg.cc/bYQqgdww/676-Sem-Titulo-20260809211940.png)
+![](https://i.postimg.cc/6p3SDtF0/687-Sem-Titulo-20260810175904.png) 
+
+[Rentry](https://rentry.co/emptyBoxc) &emsp; [Carrd](https://4reen.carrd.co)
+
+<p align="center">
+
+$$\color{#f2a49a} whisper $$ $$\color{#5E6283} to $$ $$\color{#f2a49a} int $$ $$\color{#5E6283} ... $$
+
+$$\color{#f2a49a} usually $$ $$\color{#5E6283} offtab, $$ $$\color{#f2a49a} maybe $$ $$\color{#5E6283} slow $$ $$\color{#f2a49a} reply $$
+
+![](https://i.postimg.cc/3xJ0gbzN/feathered-image-(2).png) 
