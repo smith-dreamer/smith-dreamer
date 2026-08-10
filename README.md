@@ -6,8 +6,8 @@
 ⠀ 
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"> ![image_alt](https://i.postimg.cc/FRpJkpqG/675-Sem-Titulo-20260809210358.png) <p align="center">
- ㅤ &emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp;⠀⠀&emsp;⠀⠀&emsp;⠀⠀&emsp;⠀&emsp;⠀&emsp; ⌣  ୨୧  &emsp;  ׅㅤ&emsp;  whisper to 𝙞𝙣𝙩 ... &emsp; ˒˓
+ ㅤ &emsp; &emsp; &emsp;  &emsp;    ⠀⠀ ⌣  ୨୧  &emsp;  ׅㅤ&emsp;  whisper to 𝙞𝙣𝙩 ... &emsp; ˒˓
 
-&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp;⠀⠀&emsp;⠀⠀&emsp;⠀⠀&emsp;⠀&emsp;⠀&emsp; ★ &emsp; ︶︶ &emsp; [Rentry](https://rentry.co/emptyBoxc) &emsp; [Carrd](https://4reen.carrd.co)
+&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp;⠀ ★ &emsp; ︶︶ &emsp; [Rentry](https://rentry.co/emptyBoxc) &emsp; [Carrd](https://4reen.carrd.co)
  
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![image_alt](https://i.postimg.cc/bYQqgdww/676-Sem-Titulo-20260809211940.png)
