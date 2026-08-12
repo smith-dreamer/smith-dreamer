@@ -14,7 +14,7 @@ $$\color{#5E6283} in $$ $$\color{#f2a49a} the $$ $$\color{#5E6283} cellar $$
 
 ![](https://i.postimg.cc/6p3SDtF0/687-Sem-Titulo-20260810175904.png) 
 
-[Rentry](https://rentry.co/emptyBoxc) &emsp; [Carrd]([https://ble3ed.carrd.co])
+[Rentry](https://rentry.co/emptyBoxc) &emsp; [Carrd](https://ble3ed.carrd.co)
 
 <p align="center">
 
