@@ -11,6 +11,7 @@
 $$\color{#f2a49a} going $$ $$\color{#5E6283} under, $$ $$\color{#f2a49a} rats $$
 $$\color{#5E6283} in $$ $$\color{#f2a49a} the $$ $$\color{#5E6283} cellar $$
 
+$$\color{#5E6283} wingstt $$ $$\color{#f2a49a} on $$ $$\color{#5e6283} discord $$
 
 ![](https://i.postimg.cc/6p3SDtF0/687-Sem-Titulo-20260810175904.png) 
 
